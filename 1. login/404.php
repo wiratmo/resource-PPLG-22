@@ -1,0 +1,1 @@
+ada kesalahan sistem
